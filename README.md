@@ -1,2 +1,2 @@
 # seer
-this is about the future!
+this is about the future!😂
